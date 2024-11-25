@@ -11,3 +11,6 @@ I don't know. If this doesn't take too much time, then maybe.
 ## Why "Quarter Eagles"?
 
 Why, SPYC 2025 DSE'ers?
+
+---
+*Created with Create-T3-app*
